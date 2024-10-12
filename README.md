@@ -14,12 +14,16 @@
 
 学习过程中，发现这8本书不太好找，花了一些时间找全，在此分享出来。
 
-![WX20241012-101649@2x](https://github.com/user-attachments/assets/0b665dcd-352a-4b53-a695-165d77009ebd)
+百度网盘地址：
+链接: https://pan.baidu.com/s/1ijnnB1wf-i77WXLfwgbdRw 提取码: ssx9
 
+
+![WX20241012-101619@2x](https://github.com/user-attachments/assets/7204fd5a-ba55-458f-a9fc-f12607870d7f)
+
+![WX20241012-101649@2x](https://github.com/user-attachments/assets/0b665dcd-352a-4b53-a695-165d77009ebd)
 
 ![WX20241012-101608@2x](https://github.com/user-attachments/assets/ac146c91-d1d6-4e7c-91e0-f746f6e528a2)
 
-![WX20241012-101619@2x](https://github.com/user-attachments/assets/7204fd5a-ba55-458f-a9fc-f12607870d7f)
 
 
 
